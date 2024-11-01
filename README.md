@@ -11,5 +11,5 @@ Aqui estão algumas ideias para você começar:
 - 🤔 Estou procurando ajuda com coisas
 - 💬 Pergunte-me sobre desenhos, jogos, e decks de clash pois sou melhor que o bryan gabriel
 - 📫 Como entrar em contato comigo: isaque.conradi@escola.pr.gov.br
-- 😄 Pronomes: 🚁 de combate
+- 😄 Pronomes:ele/dele
 - ⚡ Curiosidade: sou pekka user, mega evo user e uso emoji de princesa bocejando e a pega deboxando
