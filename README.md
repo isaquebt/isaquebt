@@ -12,4 +12,6 @@ Aqui estão algumas ideias para você começar:
 - 💬 Pergunte-me sobre desenhos, jogos, e decks de clash pois sou melhor que o bryan gabriel
 - 📫 Como entrar em contato comigo: isaque.conradi@escola.pr.gov.br
 - 😄 Pronomes:ele/dele
-- ⚡ Curiosidade: sou pekka user, mega evo user e uso emoji de princesa bocejando e a pega deboxando
+- ⚡ Curiosidade: sou pekka user, mega evo user e uso emoji de princesa bocejando e a pekka vergonhosa
+-👎 sou main fang 🍿👟
+- odeio mico🦧
