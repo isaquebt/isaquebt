@@ -15,3 +15,7 @@ Aqui estão algumas ideias para você começar:
 - ⚡ Curiosidade: sou pekka user, mega evo user e uso emoji de princesa bocejando e a pekka vergonhosa
 -👎 sou main fang 🍿👟
 - odeio mico🦧
+
+-![](https://media.tenor.com/9SQVLfdZEScAAAAi/clashroyale.gif)
+
+-![](https://media1.tenor.com/m/PR3Uckc_N08AAAAC/kit-brawl-stars.gif)
